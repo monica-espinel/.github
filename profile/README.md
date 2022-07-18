@@ -1,3 +1,5 @@
-## Monica Espinel
+# Monica Espinel
+
+## Curator & Writer
 
 https://monicaespinel.com/about/
